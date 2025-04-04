@@ -1,0 +1,1 @@
+# boyadan-beri-xato-chiqvotti-nima-qili
